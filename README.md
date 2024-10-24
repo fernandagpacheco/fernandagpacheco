@@ -1,6 +1,6 @@
 Oiii!
 
-- Farmacêutica
+- Sou farmacêutica
 - Mestre em Biotecnologia farmacêutica
 - 😊 Aprendendo tech para migrar de carreira.
 
